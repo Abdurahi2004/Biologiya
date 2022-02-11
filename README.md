@@ -1,0 +1,2 @@
+# Biologiya
+Biyalogiya haqida
